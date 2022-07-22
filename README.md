@@ -1,1 +1,1 @@
-# IBB-de_Elektrigin_Gelecegi-Veri-Bilimi-
+# IBB-de_Elektrigin_Gelecegi-Veri-Bilimi
